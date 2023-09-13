@@ -1,1 +1,1 @@
-William James
+William James's Collection
